@@ -90,3 +90,10 @@ CAYENNE_IN(3)
 </pre>
 
 <h3>Hasil</h3>
+https://github.com/naufalzakky/Nomor1/blob/main/20221228_124610.jpg
+
+https://github.com/naufalzakky/Nomor1/blob/main/Screenshot%20(38).png
+
+https://github.com/naufalzakky/Nomor1/blob/main/Screenshot%20(40).png
+
+https://github.com/naufalzakky/Nomor1/blob/main/Screenshot%20(41).png
